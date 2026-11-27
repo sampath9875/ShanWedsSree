@@ -1,4 +1,4 @@
-# Thiriveedhi's Family Wedding Invitation
+# Thiriveedhi Family's Wedding Invitation
 
 **Srirastu · Sri Lakshmi Venkateswara Swamy Prasannaha! · Subhamastu**
 
